@@ -1,0 +1,4 @@
+-   hi, i’m @savantshuia
+-   this is just for personal projects
+-   if you like something then i'll be really happy 
+-   i guess
